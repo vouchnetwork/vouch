@@ -31,7 +31,6 @@ it is maintenance.
 Cold. Precise. Non-performative.  
 No spectacle. No ideology. Just recalibration.
 
-⟡ VOUCH NETWORK PROTOCOL ⟡
 --- 
 
-⟡ end transmission ⟡
+⟡ VOUCH NETWORK PROTOCOL ⟡
